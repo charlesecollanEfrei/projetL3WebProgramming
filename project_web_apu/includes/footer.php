@@ -1,0 +1,1 @@
+<p>©2017 Charli Hotel. All Rights Reserved.</p>
